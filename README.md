@@ -1,1 +1,3 @@
 # Odrodzenie
+
+Czas się zmienić 
